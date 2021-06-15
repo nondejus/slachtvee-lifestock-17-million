@@ -1,1 +1,0 @@
-# slachtvee-lifestock-17-million
